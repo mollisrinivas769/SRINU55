@@ -1,2 +1,0 @@
-# SRINU55
-FOLDER
